@@ -31,7 +31,7 @@ Ilove beaches  take a look
 
 Name: Clement Mlay
 
-Background: BSc in Molecular Biology and Biotechnology
+Background: Molecular Biology and Biotechnology
 
 Fun fact: I like sweeming
 
